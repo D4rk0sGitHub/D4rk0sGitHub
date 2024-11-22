@@ -4,10 +4,11 @@
  
  🧰 Feel free to fork it, clone it, and make it your own.  After all,    **Sharing is Caring**.
 
- ℹ️ Check out my essential links and social networks by clicking the link below.
+ ℹ️ Check out my essential links and social networks by clicking below.
 
  👉 [My Beacons ](https://beacons.ai/d4rk0s) 👈 
- 
+
+ 👉 [Let's meet](https://cal.com/d4rkos) 👈 
 
   
 
